@@ -1,4 +1,4 @@
-
+Notion for macOS premium Addon: version history & export to PDF offers the most advanced Notion for macOS addon, with version history and export to PDF. Ideal for professionals.
 
 
 
